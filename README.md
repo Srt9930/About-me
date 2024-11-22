@@ -11,7 +11,7 @@
 
 - 📫 You can reach me at **srt9930@gmail.com**
 
-- 📄 Know about my experiences [https://www.srtexpo.me/assets/resume.pdf](https://www.srtexpo.me/assets/resume.pdf)
+- 📄 Know about my experiences [https://www.srtexpo.me/assets/resume.pdf](https://www.srtexpo.me/assets/shreyansh_tiwari_resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
